@@ -1,1 +1,1 @@
-# dikapranan.github.io
+SAYA GANTENG SERIUS GA BOONG
